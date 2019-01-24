@@ -1,1 +1,0 @@
-https://isitquestion.neocities.org/
